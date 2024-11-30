@@ -37,7 +37,7 @@
 ## 🎌 Anime
 > 🔥 Demon Slayer, Classroom of the elite, Death Note, Jujutsu Kaisen, Naruto, etc
 
-##🎵 Music
+## 🎵 Music
 > 🎶Chill Lo-fi beats and orchestral film scores.
 
 ## 💞 Vtuber
